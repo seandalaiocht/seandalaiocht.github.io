@@ -13,9 +13,7 @@ Video transcript and URL to the video stream follow after the break.
 
 <!--more-->
 
-
 [https://www.youtube.com/watch?v=vTxxRqbv_Kk](https://www.youtube.com/watch?v=vTxxRqbv_Kk) (Kirstin Bimson)
-
 
 **Video transcript**
 
@@ -47,5 +45,5 @@ During the civil war, the Irish rioted against the draft lottery when it became 
 
 Nativists lobbied for stronger anti-Irish immigration laws. Many beat or killed Irish and many more burned Catholic churches. They took on as their personal mission a viscous social and political vendetta against the immigrants. In 1834, a mob of anti-Irish nativists burned the Ursuline Convent in Charlestown, Massachusetts to the ground. In 1836, nativists published the "Awful Disclosures of Maria Monk", the story about an emotionally troubled woman claiming to have witnessed debauchery and infanticide while staying in a convent. In 1844, nativist rioters burned down two Catholic churches in Pennsylvania over a dispute over which Bible to teach in public schools.
 
-The stormy focus on Irish Americans did not lesson until other groups started immigrating to America in large numbers in the late 1800s. For the Irish American, opportunities to advance did come with time. Many worked up enough money to bring family from Ireland to America. After the civil war, the Irish also monopolized the police force and fireman positions. Anti-Irish sentiment did continue on into more recent history, however it seemed to rapidly decline after the election of John F. Kennedy, the first man of Irish decent and Catholic religion elected president.
+The stormy focus on Irish Americans did not lessen until other groups started immigrating to America in large numbers in the late 1800s. For the Irish American, opportunities to advance did come with time. Many worked up enough money to bring family from Ireland to America. After the civil war, the Irish also monopolized the police force and fireman positions. Anti-Irish sentiment did continue on into more recent history, however it seemed to rapidly decline after the election of John F. Kennedy, the first man of Irish decent and Catholic religion elected president.
 
