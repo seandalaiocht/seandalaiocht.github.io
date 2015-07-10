@@ -13,6 +13,7 @@ Video transcript and links to watch the video stream follow after the break.
 
 [https://www.youtube.com/watch?v=vTxxRqbv_Kk](https://www.youtube.com/watch?v=vTxxRqbv_Kk)
 
+**Video transcript**
 
 Nativist hatred towards new Irish immigrants to the United States stems from a long history of discord between Ireland and Britain. Their hostilities date back to long before Irish men and women began sailing across the seas to the United States.
 
