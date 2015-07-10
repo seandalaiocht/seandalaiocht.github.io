@@ -6,7 +6,7 @@ title: Irish Immigration to the United States (video)
 The Irish suffered greatly during the transition between Irish, and Irish-American. Though abuses were numerous, and opportunities few, Irish men and women bravely carried on, successfully integrating themselves into American culture and society. The following student prepared video describes the social and political oppression suffered by the Irish people in their homeland and details the Protestant American "Nativist" discrimination unleashed upon those that immigrated to the United States.
 
 Video transcript and links to watch the video stream follow after the break.
-\n---\n
+"\n---\n"
 ![Irish Immigration video](/images/irelands_holocaust.png)
 
 [https://www.youtube.com/watch?v=vTxxRqbv_Kk](https://www.youtube.com/watch?v=vTxxRqbv_Kk)
