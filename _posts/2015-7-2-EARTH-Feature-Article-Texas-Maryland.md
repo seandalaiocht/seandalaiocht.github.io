@@ -13,7 +13,11 @@ Link to a downloadable copy of this feature article as well as various article h
 
 <!--more-->
 
-[![Texas, Maryland - A Historic Tale of Irish Refugees Starting in a New Land and Quarrying Marble](/images/texas_maryland_magazine.png)](/images/EARTH_texas_article.pdf) (Brian Fisher Johnson)
+[![Texas, Maryland - A Historic Tale of Irish Refugees Starting in a New Land and Quarrying Marble](/images/texas_maryland_magazine.png)](/images/EARTH_texas_article.pdf)
+
+
+[http://seandalaiocht.github.io/images/EARTH_texas_article.pdf](/images/EARTH_texas_article.pdf) (Brian Fisher Johnson)
+
 
 **Highlights**
 
