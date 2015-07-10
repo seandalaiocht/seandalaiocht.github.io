@@ -7,7 +7,10 @@ The Irish suffered greatly during the transition between Irish, and Irish-Americ
 
 Video transcript and links to watch the video stream follow after the break.
 <!--more-->
-https://www.youtube.com/watch?v=vTxxRqbv_Kk
+![Irish Immigration video](/images/irelands_holocaust.png)
+
+[I'm an inline-style link](https://www.youtube.com/watch?v=vTxxRqbv_Kk)
+
 
 Nativist hatred towards new Irish immigrants to the United States stems from a long history of discord between Ireland and Britain. Their hostilities date back to long before Irish men and women began sailing across the seas to the United States.
 
