@@ -12,7 +12,7 @@ description: University of Maryland Summer 2015 ARTH240 student
 avatar: https://raw.githubusercontent.com/barryclark/jekyll-now/master/images/jekyll-logo.png
 
 # http://jekyllrb.com/docs/posts/#post-excerpts
-excerpt_separator: "<!-- more -->"
+excerpt_separator: <!-- more -->
 
 #
 # Flags below are optional
