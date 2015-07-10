@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Explore latest findings regarding the Irish Experience in the United States (Event)
+title: Come explore what researchers working in Maryland have to say about Irish Experience in the United States (Event)
 ---
 
 Maryland Archeology Month is a celebration of our shared archeological heritage - created by Maryland's diverse inhabitants over the last 12,000 years. Protecting this irreplaceable archeological heritage provides opportunities to discover and learn from the past. We invite you to "Get Involved!" in Maryland's past by attending as many events as you can.
