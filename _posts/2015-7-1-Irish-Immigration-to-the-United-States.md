@@ -13,7 +13,11 @@ Video transcript and URL to the video stream follow after the break.
 
 <!--more-->
 
+
+
 [https://www.youtube.com/watch?v=vTxxRqbv_Kk](https://www.youtube.com/watch?v=vTxxRqbv_Kk) (Kirstin Bimson)
+
+
 
 **Video transcript**
 
