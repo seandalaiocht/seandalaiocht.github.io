@@ -6,7 +6,9 @@ title: Irish Immigration to the United States (video)
 The Irish suffered greatly during the transition between Irish, and Irish-American. Though abuses were numerous, and opportunities few, Irish men and women bravely carried on, successfully integrating themselves into American culture and society. The following student prepared video describes the social and political oppression suffered by the Irish people in their homeland and details the Protestant American "Nativist" discrimination unleashed upon those that immigrated to the United States.
 
 Video transcript and links to watch the video stream follow after the break.
-<!-- more -->
+<!--more-->
+https://www.youtube.com/watch?v=vTxxRqbv_Kk
+
 Nativist hatred towards new Irish immigrants to the United States stems from a long history of discord between Ireland and Britain. Their hostilities date back to long before Irish men and women began sailing across the seas to the United States.
 
 Ireland has long possessed a predominantly Catholic population in contrast to Britain's largely Protestant population. Because of the rise in Protestantism in Britain and the English Reformation in the 16th century, in which the Church of England broke from the authority of the pope, hostilities towards the Roman Catholic Church became culturally engrained in the English people.
