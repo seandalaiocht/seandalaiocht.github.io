@@ -7,7 +7,6 @@ The Irish suffered greatly during the transition between Irish, and Irish-Americ
 
 Video transcript and links to watch the video stream follow after the break.
 <!-- more -->
-
 Nativist hatred towards new Irish immigrants to the United States stems from a long history of discord between Ireland and Britain. Their hostilities date back to long before Irish men and women began sailing across the seas to the United States.
 
 Ireland has long possessed a predominantly Catholic population in contrast to Britain's largely Protestant population. Because of the rise in Protestantism in Britain and the English Reformation in the 16th century, in which the Church of England broke from the authority of the pope, hostilities towards the Roman Catholic Church became culturally engrained in the English people.
