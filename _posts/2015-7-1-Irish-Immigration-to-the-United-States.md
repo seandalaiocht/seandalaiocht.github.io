@@ -15,8 +15,10 @@ Video transcript and links to watch the video stream follow after the break.
 
 
 
-[Irish Immigration to the United States](https://www.youtube.com/watch?v=vTxxRqbv_Kk) [https://www.youtube.com/watch?v=vTxxRqbv_Kk](https://www.youtube.com/watch?v=vTxxRqbv_Kk)
-Kirstin Bimson
+[**Irish Immigration to the United States**](https://www.youtube.com/watch?v=vTxxRqbv_Kk)
+**Kirstin Bimson**
+
+[**https://www.youtube.com/watch?v=vTxxRqbv_Kk**](https://www.youtube.com/watch?v=vTxxRqbv_Kk)
 
 **Video transcript**
 
