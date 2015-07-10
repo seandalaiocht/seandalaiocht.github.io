@@ -5,7 +5,7 @@ title: Texas, MD - A Historic Tale of Irish Refugees Starting in a New Land and 
 
 [![EARTH magazine January 2010](/images/earth_2010_01.png)](http://www.earthmagazine.org/issues/january-2010)
 
-The January 2010 issue of the [American Geosciences Institute](http://www.americangeosciences.org/) [EARTH Magazine](http://www.earthmagazine.org/) features excavations of the Irish enclave of Texas, MD.
+The [American Geosciences Institute](http://www.americangeosciences.org/) highlights research by University of Maryland archaeologists in their publication [EARTH Magazine](http://www.earthmagazine.org/) which features excavations of the Irish enclave of Texas, MD.
 
 In the 1840s, many Irish immigrated to the United States. Some settled in a little Maryland town they called Texas, just outside of Baltimore, where they quarried marble that was used to build some of the United States' most iconic structures. New archaeological excavations are beginning to reveal the history of this Irish-American society.
 
