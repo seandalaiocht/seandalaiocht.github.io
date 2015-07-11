@@ -3,7 +3,7 @@ layout: post
 title: History and the meaning of diaspora (blog post)
 ---
 
-[![Irish Diaspora](/images/diaspora.jpg)](https://www.geni.com/projects/Irish-Diaspora-Diaspóra-na-nGael/2162)  
+[![Irish Diaspora](/images/diaspora.png)](https://www.geni.com/projects/Irish-Diaspora-Diaspóra-na-nGael/2162)  
 
 The influx of Irish immigrants to America during the nineteenth century represents a major feature of the Irish Diaspora. For this context, diaspora refers to the forced dispersal or scattering of people from a homeland as the result of famine, war, enslavement, ethnic cleansing, conquest, and political repression. These events and processes form the reasons for "flight following violence" in place of freely chosen displacement. In all cases, the circumstances for quitting the homeland are traumatic and extraordinary, often resulting from the effects of colonialism. Circumstances involving a foreign group that has established arbitrary power over an indigenous group are particularly damaging. Native people are considered separate from and subordinate to the ruling authority. The status quo maintained through relations of racism and racialization.
 
