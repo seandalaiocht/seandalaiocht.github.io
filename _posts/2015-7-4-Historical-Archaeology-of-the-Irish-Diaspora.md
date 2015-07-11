@@ -12,3 +12,5 @@ An in-depth review written by Deborah L. Rotman of the University of Notre Dame 
 <!--more-->
 
 Stephan A. Brighton combines archaeological and historical evidence to explore the Irish Diaspora in America. He employs comparitive data sets from Ballykilcline, County Roscommon, Ireland as well as the Five Points neighborhood in Manhattan, New York, and the Dublin section of Paterson, New Jersey. The primary material classes of his study included refined earthenwares, glass medicine bottles, and tobacco pipe bowls.
+
+The book is divided into six chapters, each of which addresses a particular aspect of his overall project. Brighton begins by positioning his work within the context of historical archaeological studies of the Irish diaspora. He discusses the ways in which identity, particularly ethnicity, have been addressed in previous analyses of Irish-America. Brighton emphasizes how meaning is constructed, the role of the ideologies of modern capitalism in racializing Irish immigrants, and the relevance of their Old World histories in shaping their New World experiences.
