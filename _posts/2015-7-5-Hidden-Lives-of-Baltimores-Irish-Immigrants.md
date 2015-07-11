@@ -19,7 +19,7 @@ note: the following content was retrieved from an internet archive as the origin
 
 An archaeological team from the University of Maryland is unearthing a unique picture of the Baltimore-area's early Irish immigrants - of city children taught to read and write at home before widespread public education and child labor laws, as well as insular rural residents who resisted assimilation for one hundred years.
 
-Child's play - a tiny 19th century doll head found in Baltimore County.  
+**Child's play - a tiny 19th century doll head found in Baltimore County.**  
 [![brighton_doll](/images/brighton_doll_small.jpg)](/images/brighton_doll.jpg)  
 Credit: University of Maryland
 
@@ -35,11 +35,11 @@ CHILDHOOD IN BALTIMORE
 
 Brighton and University of Maryland undergraduates participating in his archaeological field school spent the past three weeks digging behind the Irish Shrine in Baltimore - three homes along Lemmon Street in Baltimore dating to the 1850s. They stand across the street from the B&O Railroad Museum, once headquarters of the line. Most of the Lemmon Street immigrants performed semi- or unskilled labor for the B&O.
 
-914 Lemmon St. in Baltimore offered clues to childhood for the immigrants.
-[![brighton_914lemmon](/images/brighton_914lemmon_small.jpg)](/images/brighton_914lemmon.jpg)
+**914 Lemmon St. in Baltimore offered clues to childhood for the immigrants.**  
+[![brighton_914lemmon](/images/brighton_914lemmon_small.jpg)](/images/brighton_914lemmon.jpg)  
 Credit: University of Maryland
 
-Marking the excavation area at the Irish Shrine  
+**Marking the excavation area at the Irish Shrine**  
 [![brighton_shrinemapping](/images/brighton_shrinemapping_small.jpg)](/images/brighton_shrinemapping.jpg)  
 Credit: University of Maryland
 
@@ -53,18 +53,19 @@ The cache of children's materials on Lemmon Street tracks with earlier discoveri
 
 "We're looking back at a period in American history well before child labor laws," Brighton says. "To have a large collection of toys from two working class sites illustrates that many children, at least for a time, were allowed to be children. We may take it for granted today, but in that era there were few guarantees."
 
-A Bible lesson found on a child's plate in Texas last year.  
+**A Bible lesson found on a child's plate in Texas last year.**  
 [![brighton_childsbibleplate](/images/brighton_childsbibleplate_small.jpg)](/images/brighton_childsbibleplate.jpg)  
 Credit: University of Maryland
 
-Children played marbles in Texas.  
+**Children played marbles in Texas.**  
 [![brighton_marble](/images/brighton_marble_small.jpg)](/images/brighton_marble.jpg)  
 Credit: University of Maryland
 
 At one time, Texas, Maryland was a major hub for quarrying limestone and marble, and provided materials to build the first 150 feet of the Washington Monument, the portico of the U.S. Capitol, and the State House in Annapolis.
 
 Brighton's team - excavating there for a third summer - is targeting privies from the backyards of some of the earliest homes in Texas. The buildings are gone, but the rear lots remain undisturbed, and may hold clues to the first 50 years of Irish life in the community.
-In the lab, the archaeologists piece together the fragments of the Texas immigrants' lives.  
+
+**In the lab, the archaeologists piece together the fragments of the Texas immigrants' lives.**  
 [![brighton_texas2010](/images/brighton_texas2010_small.jpg)](/images/brighton_texas2010.jpg)  
 Credit: University of Maryland
 
@@ -84,7 +85,7 @@ FAMILY DINNERS:
 
 Ceramic plates were used at family dinners where everyone in the house gathered to share a simple meal, to bond, and transmit their cultural legacy. At the time, most Americans tended to socialize by holding large dinner parties, but Brighton didn't find the kind of serving dishes and utensils that would have been needed for such events. He concludes that the Irish immigrants didn't socialize that way and kept dining a family affair.
 
-A medal of St. Joseph recalls the close attachment to the Texas Church.  
+**A medal of St. Joseph recalls the close attachment to the Texas Church.**  
 [![brighton_stjomedal](/images/brighton_stjomedal_small.jpg)](/images/brighton_stjomedal.jpg)  
 Credit: University of Maryland
 
