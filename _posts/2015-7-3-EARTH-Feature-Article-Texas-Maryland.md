@@ -25,6 +25,6 @@ The town of Texas had about 50 residents as of 1850. Within 10 years, the town h
 
 Stephen Brighton heard about Texas, Maryland from a Ballykilcline heritage society while excavating at sites in Ireland.
 
-The archeaological evidence uncovered at these Baltimore area excavations suggests that the Irish-American community of Texas was different from previously researched Irish communities in New York City and Paterson, NJ. The descendants of the initial immigrants maintained their Irish identity significantly longer than was evidenced by earlier excavations elsewhere.
+The archaeological evidence uncovered at these Baltimore area excavations suggests that the Irish-American community of Texas was different from previously researched Irish communities in New York City and Paterson, NJ. The descendants of the initial immigrants maintained their Irish identity significantly longer than was evidenced by earlier excavations elsewhere.
 
-Stone from teh quarries around Texas, MD made its way into numerous landmark buildings, including teh Baltimore City Hall, the Washington Monument, the porticoes of the House and Senate wings of the U.S. Capital, and St. Patrick's Cathedral in New York City.
+Stone from the quarries around Texas, MD made its way into numerous landmark buildings, including the Baltimore City Hall, the Washington Monument, the porticoes of the House and Senate wings of the U.S. Capital, and St. Patrick's Cathedral in New York City.
