@@ -8,10 +8,6 @@ This blog aims to inform Irish-Americans of their heritage with a special focus 
 
 Interested readers will find much to learn regarding the process whereby their Irish ancestors entered the United States largely as despised foreigners, transitioned to Irish-Americans who chose to preserve many key elements of their culture but eventually integrated themselves deeply into American culture and society.
 
-### More Information
-
-Over 41 million Americans can claim Irish ancestry. This represents 14% of the U.S. Population.
-
 ### Contact me
 
 [ward@umd.edu](mailto:ward@umd.edu)
