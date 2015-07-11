@@ -11,4 +11,6 @@ At the beginning of the seventeenth century, English run in Ireland was establis
 
 Land ownership quickly transitioned to a small elite land-owning class at the top of the socio-economic structure that controlled the majority of the rural Irish landscape. Large numbers of people that comprised the rural poor classes held almost no land and these people were the ones directly impacted by the evictions and famine that began in 1845. The Great Famine (1845-1852) resulted in millions of people who were compelled to leave because of large-scale evictions, famine, and disease.
 
+<!--more-->
+
 To gain perspective about life in rural Ireland at the time of these large-scale evictions I would suggest you explore the following well researched website which provides many illustrations: the [http://www.maggieblanck.com/Mayopages/Eviction.html](http://www.maggieblanck.com/Mayopages/Eviction.html)
