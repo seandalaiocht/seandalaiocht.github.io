@@ -13,8 +13,6 @@ An archived copy of the article (with high resolution images) is provided after 
 
 <!--more-->
 
-note: the following content was retrieved from an internet archive as the original source is no longer available.
-
 ## Hidden Lives of Baltimore's Irish Immigrants Unearthed for First Time in Urban Archaeology
 
 An archaeological team from the University of Maryland is unearthing a unique picture of the Baltimore-area's early Irish immigrants - of city children taught to read and write at home before widespread public education and child labor laws, as well as insular rural residents who resisted assimilation for one hundred years.
