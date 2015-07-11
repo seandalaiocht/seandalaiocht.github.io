@@ -28,3 +28,7 @@ Stephen Brighton heard about Texas, Maryland from a Ballykilcline heritage socie
 The archaeological evidence uncovered at these Baltimore area excavations suggests that the Irish-American community of Texas was different from previously researched Irish communities in New York City and Paterson, NJ. The descendants of the initial immigrants maintained their Irish identity significantly longer than was evidenced by earlier excavations elsewhere.
 
 Stone from the quarries around Texas, MD made its way into numerous landmark buildings, including the Baltimore City Hall, the Washington Monument, the porticoes of the House and Senate wings of the U.S. Capital, and St. Patrick's Cathedral in New York City.
+
+Places like Texas, Maryland demonstrate how communities of former farmers had transitioned to being manual laborers who contributed greatly the American Industrial Revolution.
+
+The Catholic religion remained a significant element in the lives of the members of this tight-knit community.
