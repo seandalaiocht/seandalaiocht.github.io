@@ -13,8 +13,7 @@ An archived copy of the article is available after the break.
 
 <!--more-->
 
-### Traces Of Irish Emigrants Dug Up In Md.'s Texas
-
+## Traces Of Irish Emigrants Dug Up In Md.'s Texas
 ### Artifacts May Be From Quarry Workers In 1800s Who Had Planned To Go West
 
 July 13, 2009  
