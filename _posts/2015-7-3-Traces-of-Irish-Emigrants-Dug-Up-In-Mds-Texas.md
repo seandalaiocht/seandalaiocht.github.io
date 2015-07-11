@@ -13,12 +13,12 @@ An archived copy of the article is available after the break.
 
 <!--more-->
 
-# Traces Of Irish Emigrants Dug Up In Md.'s Texas
+## Traces Of Irish Emigrants Dug Up In Md.'s Texas  
+### Artifacts May Be From Quarry Workers In 1800s Who Had Planned To Go West
 
-## Artifacts May Be From Quarry Workers In 1800s Who Had Planned To Go West
-
-July 13, 2009
-By Mary Gail Hare [mary.gail.hare@baltsun.com](mary.gail.hare@baltsun.com)
+July 13, 2009  
+By Mary Gail Hare  
+[mary.gail.hare@baltsun.com](mary.gail.hare@baltsun.com)
 
 The discovery of a discolored and worn-thin penny rarely generates enthusiasm, unless the discoverer is digging into history and the coin provides insight into the life of another era.
 
