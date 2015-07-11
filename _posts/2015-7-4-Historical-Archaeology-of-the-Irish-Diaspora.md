@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Historical Archaeology of the Irish Diaspora: A Transnational Approach
+title: Historical Archaeology of the Irish Diaspora - A Transnational Approach
 ---
 
 [![Historical Archaeology of the Irish Diaspora](/images/historical_archaeology_of_the_irish_diaspora_small.jpg)](/images/historical_archaeology_of_the_irish_diaspora.jpg)  
