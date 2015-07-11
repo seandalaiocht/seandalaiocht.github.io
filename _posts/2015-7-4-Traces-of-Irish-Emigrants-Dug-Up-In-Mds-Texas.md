@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Traces Of Irish Emigrants Dug Up In Md.'s Texas (newspaper)
+title: Traces Of Irish Emigrants Dug Up In Md.'s Texas
 ---
 
 [![The Baltimore Sun](/images/baltimore-sun-logo.jpg)](http://articles.baltimoresun.com/2009-07-13/news/0907120075_1_brighton-irish-diaspora-quarry-workers)

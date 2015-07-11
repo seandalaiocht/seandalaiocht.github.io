@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Texas, MD - A Historic Tale of Irish Refugees Starting in a New Land and Quarrying Marble (magazine)
+title: Texas, MD - A Historic Tale of Irish Refugees Starting in a New Land and Quarrying Marble
 ---
 
 [![EARTH magazine January 2010](/images/earth_2010_01.png)](http://www.earthmagazine.org/issues/january-2010)
