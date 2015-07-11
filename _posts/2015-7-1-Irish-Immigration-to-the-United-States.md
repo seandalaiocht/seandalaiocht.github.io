@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Irish Immigration to the United States (video)
+title: Irish Immigration to the United States
 ---
 
 [![Irish Immigration video](/images/irelands_holocaust.png)](http://www.youtube.com/watch?v=vTxxRqbv_Kk)

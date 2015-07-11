@@ -1,6 +1,6 @@
 ---
 layout: post
-title: History and the meaning of diaspora (blog post)
+title: History and the meaning of diaspora
 ---
 
 [![Irish Diaspora](/images/diaspora.png)](https://www.geni.com/projects/Irish-Diaspora-Diaspóra-na-nGael/2162)  

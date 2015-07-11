@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Hidden Lives of Baltimore's Irish Immigrants Unearthed for First Time in Urban Archaeology (outreach)
+title: Hidden Lives of Baltimore's Irish Immigrants Unearthed for First Time in Urban Archaeology
 ---
 
 [![University of Maryland College Park](/images/MFlag.png)](http://www.umd.edu/)
