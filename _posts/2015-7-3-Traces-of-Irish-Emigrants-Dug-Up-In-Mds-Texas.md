@@ -7,7 +7,7 @@ title: Traces Of Irish Emigrants Dug Up In Md.'s Texas (newspaper)
 
 [The Baltimore Sun](http://www.baltimoresun.com/) newspaper reports on early artifacts excavated from an Irish-American enclave in Baltimore County just north of Timonium which was previously known as Texas, Maryland.
 
-In the 1840s, many Irish immigrated to the United States. Some settled in a little Maryland town they called Texas, just outside of Baltimore, where they quarried marble that was used to build some of the United States' most iconic structures. New archaeological excavations are beginning to reveal the history of this Irish-American society.
+Undergraduate students from the Univerity of Maryland working under the direction of Stephen A. Brighton, assistant professor in the university's department of anthropology, have uncovered many objects which are being used to piece together life stories and create larger stories about daily life in this Irish working community.  
 
 An archived copy of the article is available after the break.
 
